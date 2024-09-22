@@ -7,7 +7,7 @@ fnaf//andy and leyley//hello kitty//gacha//Pokémon//Lilo and stich//demon slaye
 ## KINS !
 Mellisa(hazbin hotel)Cherri bomb(hazbin hotel)Barbie wire(helluva boss)
 ## NAMES !
-barb//Barbie wire//Barbie//Gabriel
+barb//Barbie wire//Barbie//Gabriel//mabel
 ## dead names.
 Sun//Sunny//Astra//Susie
 ## THATS ALL!!!!!!
