@@ -11,4 +11,4 @@ barb//Barbie wire//Barbie//Gabriel//mabel
 ## dead names.
 Sun//Sunny//Astra//Susie
 ## THATS ALL!!!!!!
-## HAVE A GOOD DAY!!!
+## HAVE A GOOD DAY!!!(i'm not a proshipper btw i just like the art in TCOANLL)
