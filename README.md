@@ -37,7 +37,8 @@ Poppy playtime౨ৎ
 Garten of banban౨ৎ
 Kirby and the forgotten lands౨ৎ
 Fall guys౨ৎ
-
+![image](https://github.com/user-attachments/assets/f2edea77-ed4b-4c37-bf0a-b184db91bc05)
+Bye!! This took a long time lol- gonna make a new strawpage soon!!౨ৎ
 
 
 
