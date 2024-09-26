@@ -7,7 +7,7 @@ stealers,copyers,pedo's,zoophiles,old friends,rude people,SA supporters,proshipp
 Hazbin hotel fans,Helluva boss fans,alastor haters,valentino haters,niffty haters,horror game lovers,(strangers int if theres drama!)౨ৎ
 ![image](https://github.com/user-attachments/assets/4ec4dde5-0f4f-4bdb-ae41-397037f5990d)
 # KINS!
-Helluva boss:Stella,Barbie wire,Hazbin hotel:Cherri bomb,Mellisa,Velvette,Gravity falls:Mabel pines౨ৎ
+Helluva boss:Stella,Barbie wire,Hazbin hotel:Cherri bomb,Mellisa,Velvette,Gravity falls:Mabel pines,FNAF:Elizabeth afton౨ৎ
 ![image](https://github.com/user-attachments/assets/7c04b50a-a632-49af-852b-352631c988d1)
 # NAMES !
 Barbie wire,Stella,Astra,Sun,Gabriel,Susie౨ৎ
@@ -16,12 +16,27 @@ Barbie wire,Stella,Astra,Sun,Gabriel,Susie౨ৎ
 May 5th౨ৎ!
 ![image](https://github.com/user-attachments/assets/f366bb33-e43c-4b28-b55a-fa121bd54a0f)
 # SHIPS !
-charlie x vaggie
-Lute x vaggie
-Stella x barbie wire
-Barbie wire x verosika
-Blitzo x Stolas
-S̶t̶e̶l̶l̶a̶ x̶ l̶i̶l̶i̶t̶h̶
+charlie x vaggie౨ৎ
+Lute x vaggie౨ৎ
+Stella x barbie wire౨ৎ
+Barbie wire x verosika౨ৎ
+Blitzo x Stolas౨ৎ
+S̶t̶e̶l̶l̶a̶ x̶ l̶i̶l̶i̶t̶h̶౨ৎ
+![image](https://github.com/user-attachments/assets/4da51f9a-850e-4ced-8759-4d337fd74778)
+# FAVOURITE GAMES !
+gacha life//club//life 2౨ৎ
+roblox౨ৎ
+fortnite౨ৎ
+FNAF SL౨ৎ
+FNAF 1౨ৎ
+Disney dream light valley౨ৎ
+Minecraft౨ৎ
+FNAF HW౨ৎ
+Deltarune౨ৎ
+Poppy playtime౨ৎ
+Garten of banban౨ৎ
+Kirby and the forgotten lands౨ৎ
+Fall guys౨ৎ
 
 
 
