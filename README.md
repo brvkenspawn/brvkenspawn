@@ -21,6 +21,7 @@ Lute x vaggie
 Stella x barbie wire
 Barbie wire x verosika
 Blitzo x Stolas
+-Stella x lilith-
 
 
 
