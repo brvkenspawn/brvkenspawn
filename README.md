@@ -1,14 +1,9 @@
-## INTS!
-hazbin hotel, helluva boss, TCOANLL fans!(the coffin of andy and leyley)
-## DNI'S!
-Ex friends,weirdos, TCOFANLL haters,lovebug shippers,stelbie haters.(stella x barbie wire)
-## INTERESTS
-fnaf//andy and leyley//hello kitty//gacha//Pokémon//Lilo and stich//demon slayer//hazbin hotel//helluva boss//roblox//dress to impress//mitski//music//horror//creepypasta//spongebob//all of us are dead//squid game//class of '09//tv girl//drama kween//SML//SML Theory//rotten mango//Yaelokre//Not your normal kids show//slendytubbys//Lazye//Imactuallylazy//Ruddy hotel
-## KINS !
-Mellisa(hazbin hotel)Cherri bomb(hazbin hotel)Barbie wire(helluva boss) Mabel pines(Gravity falls)
-## NAMES !
-barb//Barbie wire//Barbie//Gabriel//mabel
-## dead names.
-Sun//Sunny//Astra//Susie
-## THATS ALL!!!!!!
-## HAVE A GOOD DAY!!!(i'm not a proshipper btw i just like the art in TCOANLL)
+Hallo ! ! ! My names barbie wire But you can call me astra ! !  ! !౨ৎ
+![Screenshot 2024-09-26 11 31 11](https://github.com/user-attachments/assets/1825b771-8314-493e-9745-ab075a9ddeba)
+#DNI
+stealers,copyers,pedo's,zoophiles,old friends,rude people,SA supporters,proshippers,adult x minor shippers,niffty lovers,valentino supporters,alastor lovers,basic dni.౨ৎ
+![image](https://github.com/user-attachments/assets/94a0323f-a323-42be-af2e-da02d12bfcee)
+#INT
+Hazbin hotel fans,Helluva boss fans,alastor haters,valentino haters,niffty haters,
+WIP!
+
