@@ -7,7 +7,7 @@ stealers,copyers,pedo's,zoophiles,old friends,rude people,SA supporters,proshipp
 Hazbin hotel fans,Helluva boss fans,alastor haters,valentino haters,niffty haters,horror game lovers,(strangers int if theres drama!)౨ৎ
 ![image](https://github.com/user-attachments/assets/4ec4dde5-0f4f-4bdb-ae41-397037f5990d)
 # KINS!
-Helluva boss:Stella,Barbie wire,Hazbin hotel:Cherri bomb,Mellisa,Velvette,Gravity falls:Mabel pines,FNAF:Elizabeth afton౨ৎ
+Helluva boss:Stella,Barbie wire octavia,Hazbin hotel:Cherri bomb,Mellisa,Velvette,emily,sera Gravity falls:Mabel pines,FNAF:Elizabeth afton, fritz(MC)౨ৎ
 ![image](https://github.com/user-attachments/assets/7c04b50a-a632-49af-852b-352631c988d1)
 # NAMES !
 Barbie wire,Stella,Astra,Sun,Gabriel,Susie౨ৎ
