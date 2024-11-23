@@ -15,3 +15,11 @@ I am awkward sometimes!!
 ⭐
 My fav bsd characters are sigma chuuya akutagawa elise and yumeno!
 ⭐
+I have three kittens!!
+⭐
+i am a minor don't be weird w/ me!!🤭
+⭐
+THE BIGGEST MITSKI FAN!!
+⭐
+lesbian and asexual!
+⭐
