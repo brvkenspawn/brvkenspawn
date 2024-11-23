@@ -23,3 +23,8 @@ THE BIGGEST MITSKI FAN!!
 ⭐
 lesbian and asexual!
 ⭐
+Biggest hello kitty fan
+⭐
+plush lover!
+⭐
+More info on "Sigma'ssigma" strawpage!
