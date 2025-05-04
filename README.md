@@ -1,8 +1,8 @@
-C+H
 
 
-Do not call me by dead name's, i prefer candy apple, or candy.
+![download](https://github.com/user-attachments/assets/58a73974-6d29-4592-9bc4-101a81be8b1b)
 
 
-7Teen
+they/it .
 
+genderfluid, lesbian, asexual.
