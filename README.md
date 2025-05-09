@@ -16,4 +16,17 @@ socially awkward :P
 
 
 
-usually wearing Alien 2 time . C+H even if it's not in my name
+usually wearing Alien 2 time . C+H even if it's not in my name !!
+
+
+KINZ !! 
+two time, forsaken.
+
+candy apple cookie, crk.
+
+kyusaku yumeno, BSD.
+
+elliot, forsaken.
+
+
+other private one's, only shared to friends.
