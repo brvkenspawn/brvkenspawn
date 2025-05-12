@@ -16,4 +16,7 @@ socially awkward :P
 
 
 
-usually wearing Alien 2 time . C+H even if it's not in my name !!
+usually using BLUUDUD // two time // elliot . 
+
+
+
