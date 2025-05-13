@@ -1,6 +1,9 @@
 c+h encouraged !!! <3 I LOVE ALL WHO CUDDLE ME!!
 
-![download](https://github.com/user-attachments/assets/58a73974-6d29-4592-9bc4-101a81be8b1b)
+
+
+
+![Screenshot 2025-05-13 10 00 15](https://github.com/user-attachments/assets/def3e759-979e-4e32-971b-98cd01e8baa5)
 
 
 they/it .
