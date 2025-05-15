@@ -11,7 +11,7 @@ they/it .
 genderfluid, lesbian, asexual.
 
 
-autism + ADHD .
+autism  .
 
 
 
