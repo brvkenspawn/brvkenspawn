@@ -23,4 +23,7 @@ usually using BLUUDUD // two time // elliot .
 
 
 
-15+ DNI . i am uncomfortable with older ages than me interacting.
+18+ DNI . i am uncomfortable with older ages than me interacting.
+Basic DNI .
+
+i have trouble blocking / hiding people.
