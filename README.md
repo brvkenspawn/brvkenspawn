@@ -27,3 +27,5 @@ usually using BLUUDUD // two time // elliot .
 Basic DNI .
 
 i have trouble blocking / hiding people.
+Proud creator of ship name "Bubblepopeletric"(song) for Poppy x vee, name made some where in  2024, forgot the exact date!
+anyone else claiming they made the ship name is a LIAR, i made it./no joke
