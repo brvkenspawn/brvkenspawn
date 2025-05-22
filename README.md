@@ -8,10 +8,13 @@ i follow everyone i see !!!
 
 they/it/she/he .
 
-genderfluid, lesbian, asexual.
+genderfluid, lesbian , aromatic .
 
 
-autism  .
+trouble blocking people .
+
+
+if i don't respond i'm afk or 2 scared :P .
 
 
 
