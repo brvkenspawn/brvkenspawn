@@ -11,8 +11,11 @@ they/it/she/he .
 genderfluid, lesbian , aromatic .
 
 
-trouble blocking people .
+Couble comf .
 
+crowd discomfort .
+
+Might find me cuddling sm1 or alone :'(
 
 if i don't respond i'm afk or 2 scared :P .
 
@@ -22,12 +25,12 @@ socially awkward :P
 
 
 
-usually using BLUUDUD // two time // elliot . 
+usually using BLUUDUD // two time // elliot // 118o8 // Pr3ttyprincess . 
 
-
+if i tart to distance from you, especially if you're a close friend, i'm probably scared to talk 2 you / cuddle :P 
 
 18+ DNI . i am uncomfortable with older ages than me interacting.
-Basic DNI .
+Basic DNI   .
 
 i have trouble blocking / hiding people.
 Proud creator of ship name "Bubblepopeletric"(song) for Poppy x vee, name made some where in  2024, forgot the exact date!
