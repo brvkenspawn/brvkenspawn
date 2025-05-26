@@ -1,4 +1,6 @@
-c+h encouraged !!! <3 I LOVE ALL WHO CUDDLE ME!!
+working on this rnn
+
+C+H encouraged! I LOVE ALL WHO CUDDLE MEEE!!!!!
 
 i don't like changes.
 
