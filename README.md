@@ -13,7 +13,8 @@ I REALLY WANT PEOPLE TO CALL ME DAD/MOM/MUM IT MAKE'S ME FEEL SO HAPPY :sob:
 
 i follow everyone i see !!!
 
-![Screenshot 2025-05-13 10 00 15](https://github.com/user-attachments/assets/def3e759-979e-4e32-971b-98cd01e8baa5)
+
+![Screenshot 2025-05-26 21 55 57](https://github.com/user-attachments/assets/aadf72c0-096e-498a-a7ea-02b17a8eada7)
 
 
 they/it/she/he .
