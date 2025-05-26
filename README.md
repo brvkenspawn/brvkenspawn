@@ -1,4 +1,7 @@
 c+h encouraged !!! <3 I LOVE ALL WHO CUDDLE ME!!
+
+
+
 I REALLY WANT PEOPLE TO CALL ME DAD/MOM/MUM IT MAKE'S ME FEEL SO HAPPY :sob:
 
 i follow everyone i see !!!
