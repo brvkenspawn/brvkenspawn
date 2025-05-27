@@ -6,6 +6,8 @@ working on this rnn
  sensitive/emotional :lemon:🍋‍🟩
 ❦ 
  ≫ ──── ≪•◦ ❈ ◦•≫ ──── ≪ 
+
+ 
 ❦ check out my joke book called "the cannibal angel" on my strawpage! it's a 1x1 x azure x two time x elliot x chance themed book! DISCLAIMER:cannibalism and gore!! ୧ ‧₊˚ 🥩🦴 ⋅ 🩸🛁
 
 
