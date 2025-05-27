@@ -4,7 +4,8 @@ mutlishipper,Poly shipper,Rarepairer,autistic
 
 romance is BORINGG :P
 
-![Screenshot 2025-05-27 13 58 12](https://github.com/user-attachments/assets/1002fd70-6a35-4705-892c-ff7e34c6e978)
+![Screenshot 2025-05-27 13 58 12](https://github.com/user-attachments/assets/3977efe7-6797-4a0b-852b-64ab104cc436)
+
 
 
 C+H encouraged! I LOVE ALL WHO CUDDLE MEEE!!!!!
