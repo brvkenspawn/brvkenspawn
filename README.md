@@ -10,6 +10,8 @@ i love cuddling ppl !! ❤️
 
 Fictkin
 
+my Hyperfixtation ATM is Forsaken >0<
+
 comfort chars is bluudud,pr3ttyprincess,and peregrine(yaelokre)
 
 C+H encouraged! I LOVE ALL WHO CUDDLE MEEE!!!!!
