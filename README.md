@@ -1,10 +1,12 @@
 working on this rnn
 
-check out my joke book called "the cannibal angel" on my strawpage! it's a 1x1 x azure x two time x elliot x chance themed book! DISCLAIMER:cannibalism and gore!! <33
+sensitive/emotional :lemon:🍋‍🟩
+
+check out my joke book called "the cannibal angel" on my strawpage! it's a 1x1 x azure x two time x elliot x chance themed book! DISCLAIMER:cannibalism and gore!! ୧ ‧₊˚ 🥩🦴 ⋅ 🩸🛁
 
 currently muted on pt.
 
-mutlishipper,Poly shipper,Rarepairer,autistic
+mutlishipper🧷💫Poly shipper🍡🎨Rarepairer🩷💭autistic♾️🌈
 
 romance is BORINGG :P ( aroace, lesbian, genderfluid, )
 
