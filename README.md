@@ -1,5 +1,7 @@
 working on this rnn
 
+currently muted on pt.
+
 mutlishipper,Poly shipper,Rarepairer,autistic
 
 romance is BORINGG :P ( aroace, lesbian, genderfluid, )
