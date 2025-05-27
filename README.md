@@ -6,7 +6,6 @@ i don't like changes.
 
 i call all my friends ugly or say that they suck as a joke, if it makes you uncomfortable please tell me.
 
-nowPlaying.on(GitHubNowPlaying.Events.ListenStop, () => { /* ... */ });
 
 ambivert
 
