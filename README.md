@@ -75,7 +75,7 @@ mean to my friends
 
  ≫ ──── ≪•◦ ❈ ◦•≫ ──── ≪ 
 
-I REALLY WANT PEOPLE TO CALL ME DAD/MOM/MUM IT MAKE'S ME FEEL SO HAPPY :sob:
+I REALLY WANT PEOPLE TO CALL ME DAD/MOM/MUM/PAPA/MAMA/SIBLING IT MAKE'S ME FEEL SO HAPPY :sob:
 
  ≫ ──── ≪•◦ ❈ ◦•≫ ──── ≪ 
 
