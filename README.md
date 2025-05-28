@@ -5,6 +5,8 @@ working on this rnn
  
  sensitive/emotional :lemon:🍋‍🟩
 ❦ 
+
+
  ≫ ──── ≪•◦ ❈ ◦•≫ ──── ≪ 
 
  
