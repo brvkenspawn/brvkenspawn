@@ -1,4 +1,15 @@
-working on this rnn
+PFPS 2 MATCH WITH MEE!!
+
+
+
+![Screenshot 2025-05-29 20 58 39](https://github.com/user-attachments/assets/3191d66b-2406-41b9-ade0-07158f5f1002)
+
+
+
+![Screenshot 2025-05-29 20 58 53](https://github.com/user-attachments/assets/f97a0709-0966-456e-9222-69084bc658cd)
+
+
+
 
 ❦
  ≫ ──── ≪•◦ ❈ ◦•≫ ──── ≪ 
@@ -91,13 +102,6 @@ cuddle comf + boop comf 💟
   ≫ ──── ≪•◦ ❈ ◦•≫ ──── ≪ 
 
 
-  PFPS 2 MATCH WITH MEEE !! :3   
-
-
-  ![Screenshot 2025-05-29 20 58 39](https://github.com/user-attachments/assets/be4fbfdf-29a3-47b9-a986-f95714fadb32)
-
-
-![Screenshot 2025-05-29 20 58 53](https://github.com/user-attachments/assets/67e374f9-0398-49b5-b910-b3da7b36c0e0)
 
 
 
