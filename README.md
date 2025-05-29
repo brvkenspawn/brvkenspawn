@@ -3,9 +3,10 @@ working on this rnn
 ❦
  ≫ ──── ≪•◦ ❈ ◦•≫ ──── ≪ 
  
- sensitive/emotional :lemon:🍋‍🟩
+ sensitive/emotional and easily uncomf !! i'll only tell friends if im uncomf :P but sometims i dunt !!! :lemon:🍋‍🟩
 ❦ 
 
+i misspel on purpos!!!!!
 
  ≫ ──── ≪•◦ ❈ ◦•≫ ──── ≪ 
 
