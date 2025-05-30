@@ -1,12 +1,4 @@
-PFPS 2 MATCH WITH MEE!!
-
-
-
-![Screenshot 2025-05-29 20 58 39](https://github.com/user-attachments/assets/3191d66b-2406-41b9-ade0-07158f5f1002)
-
-
-
-![Screenshot 2025-05-29 20 58 53](https://github.com/user-attachments/assets/f97a0709-0966-456e-9222-69084bc658cd)
+hey guh can someone match pfps with me!?!? ( putting the imagines in strawpage LMK if u do match :3 )
 
 
 
