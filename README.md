@@ -9,7 +9,6 @@ hey guh can someone match pfps with me!?!? ( putting the imagines in strawpage L
  sensitive/emotional and easily uncomf !! i'll only tell friends if im uncomf :P but sometims i dunt !!! :lemon:🍋‍🟩
 ❦ 
 
-i misspel on purpos!!!!!
 
  ≫ ──── ≪•◦ ❈ ◦•≫ ──── ≪ 
 
