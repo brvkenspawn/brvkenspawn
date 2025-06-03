@@ -1,4 +1,4 @@
-Please use He/them pronous today ! ty ! <3
+Please use it/she pronous today ! ty ! <3
 
 
 
