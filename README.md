@@ -1,4 +1,4 @@
-Please use it/she pronous today ! ty ! <3
+Please use they/him pronous today ! ty ! <3
 
 
 
@@ -45,7 +45,7 @@ my Hyperfixtation ATM is Forsaken >0<
  ≫ ──── ≪•◦ ❈ ◦•≫ ──── ≪ 
  
 
-comfort chars is bluudud,pr3ttyprincess,and peregrine(yaelokre)
+comfort chars is bluudud,pr3ttyprincess,peregrine(yaelokre),c00lkidd,two time
 
  ≫ ──── ≪•◦ ❈ ◦•≫ ──── ≪ 
 
