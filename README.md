@@ -1,8 +1,5 @@
-Please use its/it pronous today ! ty ! <3
+Please use he/him pronous today ! ty ! <3
 
- ≫ ──── ≪•◦ ❈ ◦•≫ ──── ≪
-
- 1 days SH clean . 
 
 ❦
  ≫ ──── ≪•◦ ❈ ◦•≫ ──── ≪ 
