@@ -16,8 +16,7 @@ Please use he/him pronous today ! ty ! <3
 
   ≫ ──── ≪•◦ ❈ ◦•≫ ──── ≪ 
 
-mutlishipper🧷💫Poly shipper🍡🎨Rarepairer🩷💭autistic♾️🌈
-
+mutlishipper🧷💫Poly shipper🍡🎨Rarepairer🩷💭
  ≫ ──── ≪•◦ ❈ ◦•≫ ──── ≪ 
 
 romance is BORINGG :P ( aroace, lesbian, genderfluid, )
